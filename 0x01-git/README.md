@@ -1,1 +1,1 @@
-im a good girl
+im a good girl in tech
